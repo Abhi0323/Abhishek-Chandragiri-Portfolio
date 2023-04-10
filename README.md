@@ -6,4 +6,4 @@ I am constantly learning new skills and staying ahead of the curve, enabling me 
 
 If you are seeking a highly motivated and results-driven individual who is dedicated to delivering high-quality work and constantly improving their skills, then I am the perfect fit for your team. I am confident that I can make a valuable contribution to your organization and help you achieve sustainable success.
 
-LINK: https://abhi0323.github.io/Abhishek_Chandragiri_Portfolio/
+LINK: https://abhi0323.github.io/Abhishek-Chandragiri-Portfolio/
